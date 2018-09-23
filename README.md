@@ -1,0 +1,1 @@
+# GhoziQushoyyiAdam-1-
